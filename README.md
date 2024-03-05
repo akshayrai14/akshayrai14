@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **akshay11rai@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CDFMEBNHEuncESmIm73cxmNLA5MirWTo/view](https://drive.google.com/file/d/1CDFMEBNHEuncESmIm73cxmNLA5MirWTo/view)
+- 📄 Know about my experiences https://drive.google.com/file/d/1hYyft5kEepaWFx3UNhd1fOuEaj9y5mBt/view
 
 - ⚡ Fun fact **I think I am not funny**
 
